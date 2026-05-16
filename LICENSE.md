@@ -1,4 +1,4 @@
-# 
+# Get the ultimate dex sniper bot with dex sniper bot smart Algorithm | transaction-batching & yield-farming. Featuring transaction-batching and yield-farming, it's the best choice
 
 
 
